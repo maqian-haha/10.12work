@@ -1,1 +1,1 @@
-# 10.12work
+http://shoucf.duapp.com/index/index.php
